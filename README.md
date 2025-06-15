@@ -3,7 +3,7 @@
 
 ✧ :: DNI: the general criteria, pro-ai, anti-furry/anti-therian. (more things are to be added)
 
-♢ :: IWC: swocket,medhammer,subkit,vinespace, or coilspace shippers.
+♢ :: IWC: swocket, medhammer, subkit, vinespace, or coilspace shippers. Fujoshis, fundanshis, himejoshis, etc.. (to be added)
 
 ## Boundaries
 
