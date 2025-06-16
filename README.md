@@ -1,8 +1,8 @@
 ## Do Not Interact/Interact With Caution
 
-✧ :: DNI: [the general criteria](https://basic-dni.crd.co/) | pro-ai | anti-furry/anti-therian | 18+ | (more things are to be added)
+✧ :: DNI: [the general criteria](https://basic-dni.crd.co/) | pro-ai | anti-furry/anti-therian | 18+ | ...
 
-♢ :: IWC: swocket, medhammer, subkit, vinespace, or coilspace shippers. Fujoshis, fundanshis, himejoshis, etc.. (to be added)
+♢ :: IWC: swocket, medhammer, subkit, vinespace, or coilspace shippers | Fujoshis, fundanshis, himejoshis, etc.. | ...
 
 ## Boundaries
 
