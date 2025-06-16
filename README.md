@@ -10,4 +10,4 @@
 
 ### extra stuff
 
-♢ :: piss off if you think I am annoying/problematic for liking something with a weird fandom (I.E, homestuck, dandy's world, emoji-cats), do NOT rope me in w/ those freaks 🙏🙏
+♢ :: piss off if you think I am annoying/problematic for liking something with a weird fandom (I.E, homestuck, dandy's world, emoji-cats, or pokemon), do NOT rope me in w/ those freaks 🙏🙏
