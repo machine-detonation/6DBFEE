@@ -7,6 +7,7 @@
 ## Boundaries
 
 ♢ :: Do not refer to me as "good girl/boy" or "mommy/daddy". I believe it is obvious as to why.
+✧ :: please avoid talking about kinky stuff/fetishes or rape around me unless if I mention it first (or if you are venting).
 
 ### extra stuff
 
