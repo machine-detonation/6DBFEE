@@ -1,6 +1,6 @@
 ## Do Not Interact/Interact With Caution
 
-♢ :: DNI: [the general criteria](https://basic-dni.crd.co/) | pro-ai | anti-furry/anti-therian | 18+ | supporters of BudsForBuddies, Analbones, Meowbahh, Wilbur Soot | ...
+♢ :: DNI: [the general criteria](https://basic-dni.crd.co/) | pro-ai | anti-furry/anti-therian | 20+ (w/ exceptions) | supporters/fans of BudsForBuddies, Analbones, Meowbahh, Wilbur Soot, The Coffin of Andrew and Leyley | ...
 
 ✧ :: IWC: medhammer, subkit, vinespace, or coilspace shippers | Fujoshis, fundanshis, himejoshis, etc. | ...
 
@@ -12,4 +12,4 @@
 
 ### extra stuff
 
-♢ :: piss off if you think I am annoying/problematic for liking something with a weird fandom (I.E, homestuck, dandy's world, emoji-cats, or pokemon), do NOT rope me in w/ those freaks 🙏🙏
+♢ :: piss off if you think I am annoying/problematic for liking something with a weird fandom (I.E, homestuck, dandy's world or pokemon), do NOT rope me in w/ those freaks 🙏🙏
