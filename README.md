@@ -1,3 +1,5 @@
+I DO hide/block freely so my DNIs are literally just a synonym for "people that I don't like and get blocked on sight)
+
 ## Do Not Interact/Interact With Caution
 
 ♢ :: DNI: [the general criteria](https://basic-dni.crd.co/) | pro-ai | anti-furry/anti-therian | 20+ (w/ exceptions) | supporters/fans of BudsForBuddies, Analbones, Meowbahh, Wilbur Soot, The Coffin of Andrew and Leyley | ...
