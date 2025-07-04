@@ -1,4 +1,4 @@
-[^1]: I DO hide/block freely so my DNIs are literally just a synonym for "people that I don't like and/or get blocked on sight)
+> I DO hide/block freely so my DNIs are literally just a synonym for "people that I don't like and/or get blocked on sight)
 
 ## Do Not Interact/Interact With Caution
 
