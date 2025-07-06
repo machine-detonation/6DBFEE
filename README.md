@@ -12,6 +12,12 @@
 
 ✧ :: please avoid talking about kinky stuff/fetishes or rape around me unless if I mention it first (or if you are venting).
 
-### extra stuff
+## Interact!!!
 
-♢ :: piss off if you think I am annoying/problematic for liking something with a weird fandom (I.E, homestuck, dandy's world or pokemon), do NOT rope me in w/ those freaks 🙏🙏
+♢ :: Age range 12-16
+
+✧ :: If you share ANY my interests, especially phighting or insects
+
+♢ :: silly people
+
+✧ :: basically anyone who ISN'T in my "DNI"
