@@ -20,4 +20,4 @@
 
 ♢ :: silly people
 
-✧ :: basically anyone who ISN'T in my "DNI"
+✧ :: basically anyone who ISN'T in my "DNI" can interact with me, just don't be a weirdo please
