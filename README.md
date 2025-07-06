@@ -16,7 +16,7 @@
 
 ♢ :: Age range 12-16
 
-✧ :: If you share ANY my interests, especially phighting or insects
+✧ :: If you share ANY my [interests](https://github.com/machine-detonation/EDD3A0), especially phighting or insects
 
 ♢ :: silly people
 
