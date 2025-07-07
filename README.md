@@ -24,6 +24,6 @@
 
 ✧ :: basically anyone who ISN'T in my "DNI" can interact with me, just don't be a weirdo please
 
-♢ :: doubles can int I do NOTTT give a freak
+♢ :: doubles (other rocket fictionkins) can int I do NOTTT give a freak
 
 > also most of the rockets I see are sO COOL????? you guys are so awesome heh
