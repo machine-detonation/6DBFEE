@@ -1,10 +1,19 @@
 > I DO hide/block freely so my DNIs are literally just a synonym for "people that I don't like and/or get blocked on sight)
 
-## Do Not Interact/Interact With Caution
+## Do Not Interact
 
-♢ :: DNI: [the general criteria](https://basic-dni.crd.co/) | pro-ai | anti-furry/anti-therian | 20+ (w/ exceptions) | supporters/fans of BudsForBuddies, Analbones, Meowbahh, Wilbur Soot, The Coffin of Andrew and Leyley | Babyfurs/Diaperfurs?? are you guys sane..????? | DDLG,, again ion think you guys are sane
+♢ :: [the general criteria](https://basic-dni.crd.co/)
 
-✧ :: IWC: medhammer, subkit, vinespace, or coilspace shippers | Fujoshis, fundanshis, himejoshis, etc. | 18+ unless friends of friends
+:: Pro-AI / AI "Artists"
+
+:: 20 years old or older (unless you're a friend of my friends or I interact first)
+
+:: Babyfurs/Diaperfurs..
+
+:: DDLG (Daddy Dom Little Girl)
+
+:: if you use twitter regularly /hj
+
 
 ## Boundaries
 
@@ -18,12 +27,8 @@
 
 ♢ :: Age range 12-16
 
-✧ :: If you share ANY my [interests](https://github.com/machine-detonation/EDD3A0), especially phighting or insects
+✧ :: If you share ANY my [interests](https://github.com/machine-detonation/EDD3A0), especially phighting
 
 ♢ :: silly people
 
 ✧ :: basically anyone who ISN'T in my "DNI" can interact with me, just don't be a weirdo please
-
-♢ :: doubles (other rocket fictionkins) can int I do NOTTT give a freak
-
-> also most of the rockets I see are sO COOL????? you guys are so awesome heh
