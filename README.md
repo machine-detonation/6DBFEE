@@ -42,10 +42,8 @@
 
 ## Interact!!!
 
-♢ :: Age range 12-16
-
 ✧ :: If you share ANY my [interests](https://github.com/machine-detonation/EDD3A0), especially phighting
 
 ♢ :: silly people
 
-✧ :: basically anyone who ISN'T in my "DNI" can interact with me, just don't be a weirdo please
+✧ :: basically just int if u aren't in my dni gng
