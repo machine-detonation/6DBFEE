@@ -1,4 +1,8 @@
 > I DO hide/block freely so my DNIs are literally just a synonym for "people that I don't like and/or get blocked on sight)
+> 
+> Also keep in mind that (most of) my DNIs go both ways, meaning that I won't interact with you and you won't interact with me
+>
+> tw: anti-censorship
 
 ## Do Not Interact
 
@@ -8,12 +12,25 @@
 
 :: 20 years old or older (unless you're a friend of my friends or I interact first)
 
+:: if you joke about P. Diddy. (or any rapists/pedophiles for that matter)
+
 :: Babyfurs/Diaperfurs..
 
 :: DDLG (Daddy Dom Little Girl)
 
+:: weird fans of ANY and ALL fandoms
+
 :: if you use twitter regularly /hj
 
+:: members of the forsaken "Spawnism" cult.. please stay away from me I REALLY don't like you guys
+
+### Thin Ice
+
+:: Doubles (other rocket fictkins).. y'all just freak me out a bit /lh
+
+:: 17-19 year olds
+
+:: fans of helluva boss / hazbin hotel (VERY thin ice.)
 
 ## Boundaries
 
