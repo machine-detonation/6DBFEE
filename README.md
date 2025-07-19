@@ -26,11 +26,11 @@
 
 ### Thin Ice
 
-:: Doubles (other rocket fictkins).. y'all just freak me out a bit /lh
-
 :: 17-19 year olds
 
 :: fans of helluva boss / hazbin hotel (VERY thin ice.)
+
+:: Swocket (Sword x Rocket) shippers. I genuinely don't like the ship + I've had a TON of bad experiences with people who ship this (ex. getting harassed almost every god damn day for 1-2 months).
 
 ## Boundaries
 
