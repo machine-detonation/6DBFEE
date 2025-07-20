@@ -30,7 +30,9 @@
 
 :: fans of helluva boss / hazbin hotel (VERY thin ice.)
 
-:: Swocket (Sword x Rocket) shippers. I genuinely don't like the ship + I've had a TON of bad experiences with people who ship this (ex. getting harassed almost every god damn day for 1-2 months).
+:: Swocket (Sword x Rocket) shippers. I genuinely hate the ship + I've had way too many bad encounters with people who ship this (I got harassed like 10 fucking times I'm not lying)
+
+:: Subkit, Medhammer or Boomskate shippers. (same reasons as the previous one)
 
 ## Boundaries
 
