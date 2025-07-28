@@ -20,6 +20,8 @@
 
 :: members of the forsaken "Spawnism" cult.. please stay away from me ***I REALLY don't like you guys***
 
+:: If you age up characters just to sexualize them,, why you shouldn't do this is like common sense i fear
+
 :: supporters of anything listed above
 
 ### Thin Ice
