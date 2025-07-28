@@ -20,6 +20,8 @@
 
 :: members of the forsaken "Spawnism" cult.. please stay away from me ***I REALLY don't like you guys***
 
+:: supporters of anything listed above
+
 ### Thin Ice
 
 :: 17+ (VERY THIN ICE.)
