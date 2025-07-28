@@ -1,7 +1,5 @@
 > I DO hide/block freely so my DNIs are literally just a synonym for "people that I don't like and/or get blocked on sight)
 > 
-> Also keep in mind that (most of) my DNIs go both ways, meaning that I won't interact with you and you won't interact with me
->
 > tw: anti-censorship
 
 ## Do Not Interact
@@ -9,8 +7,6 @@
 ♢ :: [the general criteria](https://basic-dni.crd.co/)
 
 :: Pro-AI / AI "Artists"
-
-:: 20 years old or older (unless you're a friend of my friends or I interact first)
 
 :: if you joke about P. Diddy. (or any rapists/pedophiles for that matter)
 
@@ -22,11 +18,11 @@
 
 :: if you use twitter regularly /hj
 
-:: members of the forsaken "Spawnism" cult.. please stay away from me I REALLY don't like you guys
+:: members of the forsaken "Spawnism" cult.. please stay away from me ***I REALLY don't like you guys***
 
 ### Thin Ice
 
-:: 17-19 year olds
+:: 17+ (VERY THIN ICE.)
 
 :: fans of helluva boss / hazbin hotel (VERY thin ice.)
 
