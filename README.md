@@ -48,4 +48,4 @@
 
 ♢ :: silly people
 
-✧ :: basically just int if u aren't in my dni gng
+✧ :: basically just int if u aren't in my dni gng is that too much to ask
