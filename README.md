@@ -40,7 +40,7 @@
 
 ✧ :: please avoid talking about kinky stuff/fetishes or rape around me unless if I mention it first (or if you are venting).
 
-♢ :: crowd discomfort + don't fully cover me unless ur a friend of mines
+♢ :: crowd discomfort + don't fully cover me unless ur a friend of mines or I choose to hide behind you
 
 ## Interact!!!
 
