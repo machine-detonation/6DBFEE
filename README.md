@@ -34,6 +34,10 @@
 
 :: Subkit, Medhammer or Boomskate shippers. (same reasons as the previous one)
 
+:: SFOTH x anyone (including the NPCs) or just Deity/Immortal x Mortal shippers in general
+
+: any ships with a large age gap (10+ years) in general are on thin ice I don't care if they're both legal adults it's still weird
+
 ## Boundaries
 
 ♢ :: Do not refer to me as "good girl/boy" or "mommy/daddy". I believe it is obvious as to why.
